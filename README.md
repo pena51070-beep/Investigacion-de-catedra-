@@ -1,4 +1,4 @@
-# Investigacion-de-catedra-
+# Perfil de Investigación-
 ## Integrantes
 - SUSAN LISBETH LOPEZ MORATAYA 25-2078-2024
 - CARLOS EDUARDO HERNANDEZ PEÑA 25-2531-2020
